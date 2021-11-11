@@ -187,4 +187,4 @@ Full Stack developer with awesome web technical skills, hefty product developmen
 <hr>
 
 
-Here is my [eMail](mailto:hotgold0905@gmail.com?Subject=Hello!) and [Skype](https://join.skype.com/invite/ywwZCW07yE4l).
+Here is my [eMail](mailto:webdeveloper2009@outlook.com?Subject=Hello!) and [Skype](https://join.skype.com/invite/y4fZlsO3HbzN).
